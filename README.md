@@ -3,6 +3,14 @@ Program Mojej Partii politycznej gdybym takową posiadał.
 
 Jak to w życiu bywa nie ma idealnie dopasowanego produktu, zawsze są jakieś kompromisy; więc stwierdziłem że najlepszym krokiem będzie zanotanie jakie działania bym podejmował.
 
+## Aktualności:
+
+
+Lewica chce podwyżki zasiłku pogrzebowego. Od dekady nie drgnął o złotówkę
+https://oko.press/zasilek-pogrzebowy-od-10-lat-bez-zmian/
+
+ Nie zgadzam się. Uważam, że państwo nie powinno zajmować się takimi rzeczami.
+
 
 ## Aktualna sytuacja - Koronawirus:
 
